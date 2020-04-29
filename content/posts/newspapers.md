@@ -1,0 +1,10 @@
+---
+title: "Newspapers"
+date: 2020-04-29T17:10:30+01:00
+draft: false
+---
+The theory is that _The Times_ hides its content behind a paywall out of shame, and that payment of the subscription fee is a kind of indulgence which grants you Divine permission to wallow for a short time in decrepit venality. What happens behind the paywall stays behind the paywall. _The Times_ knows what it's selling and to whom. Like PornHub, it knows its clientele far better than they will ever know themselves.
+
+The _Guardian_ constantly nags you for money, like an incel wheedling for sex: can't you see, it's so _special_, so _deserving_? When the mask of decorum finally drops it will end up like the _Independent_, frantically jizzing pop-up video ads at you, but for the time being it's still in the bargaining stage: will you like me if I'm more transphobic? Did you see how I stood up for you against that nasty socialist who wanted to raise your taxes and take away your buy-to-let income? Like the Liberal Democrats, the _Guardian_ does not know what it is selling, or to whom, but remains unshakeably convinced of the superior quality of the product.
+
+I lie to myself about how often I visit the _Mail Online_, and how many celebrity bottoms I have idly perused thereupon. The reverie may last for days, and yet on emerging there is no sensation of any time having passed at all. I don't recall ever being asked for money, but payment must surely be involved in this transaction. Somewhere in the bowels of hell, an infernal Accountant is playing tiddlywinks with smooth obsidian tokens representing fragments of my immortal soul. With every click through to the "ample bosom" "flaunted" by some 19-year-old starlet, another small shower of tokens tumbles out of the roiling murk above, and a faint snarl of anticipation crosses the Accountant's --- well, I suppose you'd have to call it a face. The Mail certainly knows what it is selling: what it is selling is you, one tiny portion at a time, to the frightful Engineer of eternal torment.
