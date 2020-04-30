@@ -11,7 +11,7 @@ You watched things everywhere go steadily to absolute shit. It took decades. At 
 
 ...sorry, _what_ was that again? _Prime Minister Boris Johnson_? Are you _sure_?
 
-Fish rot from the head, but the British polity is rotting from the crotch. Each day brings new consensual hallucinations. That stuff's killing you, mate, seriously, you need to knock it off. Rumour has it Boris died in hospital, that ashen-faced mountebank you see on TV is a deepfake. Someone used a voice synthesis AI to make him recite the Navy Seal copypasta, it's hilarious. Boris is a legend. They have his real head in a basement somewhere, fed with pulsing tubes, its maddened quasi-consciousness demanding ceaseless blood sacrifice.
+Fish rot from the head, but the British polity is rotting from the crotch. Each day brings new consensual hallucinations. That stuff's killing you, mate, seriously, you need to knock it off. Rumour has it Boris died in hospital, that ashen-faced mountebank you see on TV is a deepfake. Someone used a voice synthesis AI to make him recite the Navy Seals copypasta, it's hilarious. Boris is a legend. They have his real head in a basement somewhere, fed with pulsing tubes, its maddened quasi-consciousness demanding ceaseless blood sacrifice.
 
 I've got to go, I feel like I've ruptured something. _No, he's a clarinettist, he'll show you how to hold it._
 
